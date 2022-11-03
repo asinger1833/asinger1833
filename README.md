@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @asinger1833
-- 👀 I’m interested in ...
+- 👀 I’m interested in code, coffee and cake!
 - 🌱 I’m currently learning how to code with the Skillcrush community!
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: asinger1833@gmail.com
